@@ -1,2 +1,0 @@
-# andykote.github.io
-Website
